@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Deoelopvr4875
+- 👀 I’m interested in ... Chess, Golf, Roblox, Discord, Minecraft, Coding, and Band
+- 🌱 I’m currently learning ... Lua, Java, and Python
+- 💞️ I’m looking to collaborate on ... VSC, Discord, Roblox, Guilded, or Github
+- 📫 How to reach me ... Email me at colson@uplegacy.org
